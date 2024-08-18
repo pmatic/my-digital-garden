@@ -2,12 +2,19 @@
 {"dg-publish":true,"permalink":"/projects/publish-obsidian/briefly-on-africa-in-croatia/"}
 ---
 
+
+![Exhibition catalogue - Masks and Wooden Scuplture of Africa, International Student Friendship Club, 1986.jpg](/img/user/Projects/publish%20obsidian/Briefly%20on%20Africa/Attachments/Exhibition%20catalogue%20-%20Masks%20and%20Wooden%20Scuplture%20of%20Africa,%20International%20Student%20Friendship%20Club,%201986.jpg)
+*Exhibition catalogue - Masks and Wooden Scuplture of Africa, International Student Friendship Club, 1986*
+
 Although there is no evidence of an African presence on Croatian territory prior to the 19th century, Croatia's close proximity to Africa makes it possible to envision these connections going back a long way.
 
 A statue of Black Madonna with Child, crafted in 1499 by an unidentified artist, may be found in the small town of Marija Bistrica, which is located 15 kilometers from the capital city of Zagreb. The town, a well-known pilgrimage site, proudly bears the Black Madonna on its flag (“The Catholic Church’s Mysteries, Marvels, & Miracles: Our Lady of Bistrica” 2007).
 
 Between the Habsburg Empire, Venetian rule, and the Ottoman wars in the 15th century, Croatia inherited Moorish characters and blackface customs from Venice. As a result, _morčić_, a carnival character in blackface and Ottoman costume, has remained the symbol of the port city of Rijeka to this day (Baker 2018).
 
+
+![Black Madonna in Marija Bistrica, photo by Severus, Wikimedia Commons_small.jpg](/img/user/Projects/publish%20obsidian/Briefly%20on%20Africa/Attachments/Black%20Madonna%20in%20Marija%20Bistrica,%20photo%20by%20Severus,%20Wikimedia%20Commons_small.jpg)
+*Black Madonna in Marija Bistrica, photo by Severus, Wikimedia Commons*
 
 The first Croatians arrived in Africa in the 19th century. In the days of the Austro-Hungarian Monarchy, young men from Croatia travelled around Europe, and sometimes further, in search of employment, adventure, or both. Among them was Dragutin Lerman, who from 1882 until 1896 took part in Leopold II's colonial project in the Congo. He brought back some five hundred items from the Congo, which now comprise the majority of the African collection in the Zagreb Ethnographic Museum, with a lesser collection in the City Museum in Požega (Roce 2022).
 
@@ -16,6 +23,9 @@ Between 1899 and 1901, the brothers Mirko and Stjepan Seljan served as Emperor M
 The missionary Bernardo Kohnen, who tried from 1902 to 1933 to evangelize the Shilluk people in South Sudan, contributed further items to the Ethnographic Museum's collection (“Matica Hrvatska - Hrvatska Revija 4, 2002. - MISIONAR NA GORNJEM NILU,” n.d.).
 
   
+
+![Cesaire and Guberina, author unknown, 2.jpg](/img/user/Projects/publish%20obsidian/Briefly%20on%20Africa/Attachments/Cesaire%20and%20Guberina,%20author%20unknown,%202.jpg)
+*Aimé Césaire and Petar Guberina, author unknown*
 
 Africans officially made it to Croatia in the 20th century. At the Sorbonne in Paris in 1934, the Croatian linguist Petar Guberina met Aimé Césaire, and the two students soon became the best of friends. Consequently, in 1935, Césaire travelled to Croatia with Guberina and started writing his "Notebook of A Return to the Native Land", which was inspired by the Adriatic scenery as seen from Martinska. In addition to co-organizing the First Congress of Black Writers and Artists in Paris in 1956, Guberina also authored the preface to this important poem by Césaire (Humphrey 2014).
 
@@ -26,8 +36,9 @@ Following the brief but cruel German-Italian-installed „Independent State of C
   
 
 With the introduction of scholarships for numerous developing nations and liberation movements under Yugoslavia's non-aligned policy, the first group of African students from Guinea arrived in Zagreb in 1960 (Filipović 2018). Two significant events occurred the following year: the first Non-Aligned Movement Summit in Belgrade, the then capital of Yugoslavia, and a complete issue of the magazine "Naše teme" ("Our topics") on the subject of "Moja Afrika" ("My Africa") edited by Petar Guberina and Svetozar Petrović. The Africa Research Institute was formed in 1963, again by Petar Guberina and Svetozar Petrović. It is now known as the Institute for Development and International Relations (Bosanac, Jurlina, and Pukanić 2015).
+![International Student Friendship Club on an excursion, Solidarnost, 1967_small.jpg](/img/user/Projects/publish%20obsidian/Briefly%20on%20Africa/Attachments/International%20Student%20Friendship%20Club%20on%20an%20excursion,%20Solidarnost,%201967_small.jpg)
+*Members of Zagreb's International Student Friendship Club on a trip in the 1960s, Solidarnost, International Student Friendship Club*
 
-  
 
 The 1960s saw the establishment of an African Section within the Department of Indology and Far East Studies at the Faculty of Humanities and Social Sciences ("O odsjeku" n.d.).
 
@@ -46,6 +57,8 @@ The Museum of African Art was established in 1977 in the Yugoslav capital of Bel
 The African Student Union and the International Student Friendship Club organized Zagreb's celebration of Africa Week from 1984 to 1991 (Radonjić 2020). A double issue of the journal "Književna smotra" ("Literary Review") on African literature and culture was published in 1985. The former Africa Research Institute served as the venue for the founding of the Yugoslav Association of Africanists in 1986, which continued until 1991 (Bosanac, Jurlina, and Pukanić 2015).
 
   
+![01_African students in 1960s Zagreb, private archive.jpg](/img/user/Projects/publish%20obsidian/Briefly%20on%20Africa/Attachments/01_African%20students%20in%201960s%20Zagreb,%20private%20archive.jpg)
+*African and Croatian students in 1960s Zagreb, private archive*
 
 Yugoslavia was violently dismantled in 1991, and Croatia became an independent nation. This was followed by hostility toward everyone who was different, the burning down and eviction of the International Student Friendship Club, and the dissolution of the African Student Union in 1995 (Biluš, Pavić, and Simić 2007). During the regime change, the Croatian-Kenyan filmmaker Lawrence Kiiru made two short films on African-Croatian connections: "Lerman" in 1988, which focused on Dragutin Lerman's legacy in Croatia, and "Martinska-Martinique" in 1991, which highlighted the friendship between Aimé Césaire and Petar Guberina.
 
@@ -53,17 +66,9 @@ Yugoslavia was violently dismantled in 1991, and Croatia became an independent n
 
 The African community in Croatia began to reactivate through the founding of African-led NGOs in the 2000s. The African Diaspora in Croatia was established in 2013, followed by Afro Badinya in 2017, and PADUH – The Pan-African Association in Croatia - in 2021.
 
-Images from upper left: 
-1. Aimé Césaire and Petar Guberina, author unknown; 
-2. Exhibition catalogue - Masks and Wooden Scuplture of Africa, International Student Friendship Club, 1986; 
-3. Black Madonna in Marija Bistrica, photo by Severus, Wikimedia Commons; 
-4. African and Croatian students in 1960s Zagreb, private archive; 
-5. Members of Zagreb's International Student Friendship Club on a trip in the 1960s, Solidarnost, International Student Friendship Club
-  
-```img-gallery
-path: Projects\publish obsidian\Briefly on Africa\Attachments
-type: horizontal
-```
+
+
+
 
 Baker, Catherine. 2018. “Transnational Formations of Race before and during Yugoslav State Socialism.” In _Race and the Yugoslav Region_, 94–121. Manchester University Press. [https://www.manchesterhive.com/display/9781526126610/9781526126610.00009.xml](https://www.manchesterhive.com/display/9781526126610/9781526126610.00009.xml).
 
