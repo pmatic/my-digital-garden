@@ -34,7 +34,7 @@ Africans officially made it to Croatia in the **20th century**. At the **Sorbonn
 
   
 
-Following the brief but cruel German-Italian-installed **„Independent State of Croatia”**, a nazi puppet state during **World War II**, which was overthrown by the anti-fascist **Partisan movemen**t, Croatia became a part of the newly formed socialist **Yugoslavia**. Youth from the **Congo**, **Madagascar**, **Algeria**, **Egypt**, and **Morocco** participated in a number of youth work projects that helped reconstruct newly established war-damaged country in the **1940s** and **1950s** (Radonjić 2020).
+Following the brief but cruel German-Italian-installed **Independent State of Croatia**, a nazi puppet state during **World War II**, which was overthrown by the anti-fascist **Partisan movemen**t**, Croatia became a part of the newly formed socialist **Yugoslavia**. Youth from the **Congo**, **Madagascar**, **Algeria**, **Egypt**, and **Morocco** participated in a number of youth work projects that helped reconstruct newly established war-damaged country in the **1940s** and **1950s** (Radonjić 2020).
 
   
 
