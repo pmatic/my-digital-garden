@@ -102,3 +102,11 @@ _Solidarnost_. 1967. “Sastanci i Stručna Predavanja,” 1967, 14:15 edition.
 “The Catholic Church’s Mysteries, Marvels, & Miracles: Our Lady of Bistrica.” 2007. _The Catholic Church’s Mysteries, Marvels, & Miracles_ (blog). December 29, 2007. [http://holycardlover.blogspot.com/2007/12/our-lady-of-bistrica.html](http://holycardlover.blogspot.com/2007/12/our-lady-of-bistrica.html).
 
 “Upoznajmo se s afrikanistikom u Hrvatskoj.” 2013. _Kulturzativ_ (blog). May 24, 2013. [https://zeljkasvenda.wordpress.com/2013/05/24/upoznajmo-se-s-afrikanistikom-u-hrvatskoj/](https://zeljkasvenda.wordpress.com/2013/05/24/upoznajmo-se-s-afrikanistikom-u-hrvatskoj/).
+
+
+
+
+
+
+
+[petramatic.com](https://petramatic.com)
